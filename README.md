@@ -1,1 +1,0 @@
-# tugaspkwu-ali
